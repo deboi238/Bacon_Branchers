@@ -12,3 +12,7 @@ Dev: SILENTIOUS, OVIX, De kid
 Tester: OVIX, De Kid, memeguyvr
 
 designer: De kid, Serp.GT
+
+Happy gaming! 
+
+![pig0001](https://github.com/deboi238/Bacon_Branchers/assets/90112349/1861d34e-47c7-4272-87b5-2c1bc8903e8c)
