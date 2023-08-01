@@ -1,5 +1,6 @@
 This game is owned by Gorilla_bananaa
-the game is not on Applab but you can sideload the game to your quest|
+the game is not on Applab but you can sideload the game to your quest
+
 be expect to update your game often since the game is still work in prograss
 
 
