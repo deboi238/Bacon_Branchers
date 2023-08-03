@@ -1,4 +1,4 @@
-This game is owned by Gorilla_bananaa
+This game is owned by Gorilla_bananaa aka de kid
 the game is not on Applab but you can sideload the game to your quest
 
 be expect to update your game often since the game is still work in prograss
