@@ -5,13 +5,15 @@ be expect to update your game often since the game is still work in prograss
 
 
 CREDITS ⤵
-people who working/helping the game OVIX, SILENTIOUS, Serp.GT, OddMan, memeguyvr, De kid
+people who working/helping the game OVIX, SILENTIOUS, Serp.GT, OddMan, memeguyvr, De kid, ODDMAN
 
 Dev: SILENTIOUS, OVIX, De kid
 
 Tester: OVIX, De Kid, memeguyvr
 
 designer: De kid, Serp.GT
+
+Map builders: SILENTIOUS, ODDMAN,
 
 Happy gaming! 
 
